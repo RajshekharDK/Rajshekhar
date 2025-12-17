@@ -1,2 +1,3 @@
 # RajshekharDK
-Hey! I AM RAJSHEKHAR DK 
+Hi there👋
+Rajshekhar
